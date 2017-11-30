@@ -1,1 +1,0 @@
-# SITZOD-Miroshnychenko-MainProject
